@@ -1,4 +1,4 @@
-<p aligember your <a href="https://arab.org/click-to-help/palestine/"> daily click!</a> 🍉n=center> rem
+<p align=center> remember your <a href="https://arab.org/click-to-help/palestine/"> daily click!</a> 🍉
   <p align=center> 20 yo   ✦ Furry They/them + any prns
     <p align="center"> <img src="https://file.garden/Zdo7L-gxzVCR--Zn/113007303_EEFySVaev0UoRp8.png" width="420"></p>
 
